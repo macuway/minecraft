@@ -15,3 +15,6 @@ https://gametextures.com/shop/596766
 
 
 https://www.akbild.ac.at/portal_en/akbild_startpage kunsti kool mida ma mõtlen
+
+![TotallyNotACatPukingNoNo](https://user-images.githubusercontent.com/71066639/94651145-a5b64000-0300-11eb-97e4-70410b84fec6.jpg)
+
